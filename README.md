@@ -51,6 +51,14 @@ What were aspects of the presentations for which you had concerns or questions:
 No sorry.
 
 
+Title of presentation: Chicago
 
+What were aspects of the presentation that you liked:
+
+Plots were easy to understand. Visualizing was really great but I felt like background materials were not sufficient for audience to follow your presentation.
+
+What were aspects of the presentations for which you had concerns or questions:
+
+Grid size deciding.
 
 
