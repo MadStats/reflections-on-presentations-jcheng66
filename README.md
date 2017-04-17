@@ -40,15 +40,15 @@ Actually no sorry. I could feel you had working hard on your topic but the way y
 
 
 
-Title of presentation: Vote
+Title of presentation: Yelp
 
 What were aspects of the presentation that you liked:
 
-Great implemtation on logistic regression.
+Nice topic and attracting hypotheses.
 
 What were aspects of the presentations for which you had concerns or questions:
 
-Actually no sorry. I could feel you had working hard on your topic but the way you presented was not that attractive.
+No sorry.
 
 
 
