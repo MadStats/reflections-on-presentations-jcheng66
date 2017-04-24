@@ -62,3 +62,57 @@ What were aspects of the presentations for which you had concerns or questions:
 Grid size deciding.
 
 
+Title of presentation: Game
+
+What were aspects of the presentation that you liked:
+
+Plots were easy to understand. Visualizing was really great but I felt like background materials were not sufficient for audience to follow your presentation.
+
+What were aspects of the presentations for which you had concerns or questions:
+
+No.
+
+
+
+
+Title of presentation: H1B
+
+What were aspects of the presentation that you liked:
+
+Radar plots were efficient on information displaying and powerpoint was beautiful.
+
+What were aspects of the presentations for which you had concerns or questions:
+
+No.
+
+
+
+Title of presentation: Traffic accident
+
+What were aspects of the presentation that you liked:
+
+I loved the time series line chart.
+
+What were aspects of the presentations for which you had concerns or questions:
+
+No.
+
+
+Title of presentation: Song
+
+What were aspects of the presentation that you liked:
+
+GIF was so atttactive!
+
+What were aspects of the presentations for which you had concerns or questions:
+
+No.
+
+
+
+
+
+
+
+
+
