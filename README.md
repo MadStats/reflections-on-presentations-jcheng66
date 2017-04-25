@@ -66,11 +66,11 @@ Title of presentation: Game
 
 What were aspects of the presentation that you liked:
 
-Plots were easy to understand. Visualizing was really great but I felt like background materials were not sufficient for audience to follow your presentation.
+Prezi was so fascinating.
 
 What were aspects of the presentations for which you had concerns or questions:
 
-No.
+Data was not completely random. Players' understanding of the game was a great bias on generating data.
 
 
 
@@ -106,10 +106,18 @@ GIF was so atttactive!
 
 What were aspects of the presentations for which you had concerns or questions:
 
-No.
+Too long and the background didn't look good. And fonts were somewhat small, people in the last few rows can't see anything.
 
 
+Title of presentation: Terrorism
 
+What were aspects of the presentation that you liked:
+
+Great plots and great technique. Presentors were also enthusiastic.
+
+What were aspects of the presentations for which you had concerns or questions:
+
+Too long and content was like a mixture of different topic. This was also the mistake our group made.
 
 
 
